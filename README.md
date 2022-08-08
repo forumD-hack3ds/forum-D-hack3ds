@@ -12,7 +12,7 @@ ici vous trouverez le discord, le wiki et quelques petites actus !
 ____________________________________________________________________
 
 Le discord sers a régler les problème avec sa __3ds/2ds__ __hacké__ !
-
+et a aider les gens qui veulent hacker leurs 3ds.
 .
 ____________________________________________________________________
 
